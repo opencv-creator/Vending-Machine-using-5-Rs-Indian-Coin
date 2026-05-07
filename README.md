@@ -5,9 +5,8 @@ https://www.youtube.com/watch?v=IzD6wC8MlQw
 
 https://www.youtube.com/watch?v=zK5t1XD8ckw
 
-how to create vending machine coil using alumiinum silver art wire (3.7mm preferabble)
+how to create vending machine coil using alumiinum silver art wire (3.7mm preferabble) and paint spray can
 https://www.youtube.com/watch?v=BHQBsswUeT0&t=365s
-
 
 ART IFACT 20 Meters - 9 Gauge (3.7mm) Aluminium Silver Art and Craft Wire for Jewellery Making, Flower Decoration and Floral Arrangement ( u can get 3.7mm aluminium wire fom amazon for design vending machine coil as shown in the above youtube video )
 https://tinyurl.com/aluminium-wire3-7mm
